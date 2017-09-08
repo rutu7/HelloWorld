@@ -1,2 +1,2 @@
-# HelloWorld
-My First Repo
+Hellooooo GITHUB!!!! :P XD
+This is rutuparn
